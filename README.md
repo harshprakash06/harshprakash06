@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harshprakash06@gmail.com**
 
-- 📄 Know about my experiences [https://fkbasf](https://github.com/harshprakash06/harshprakash06/resume.pdf)
+- 📄 My resume [HERE](https://github.com/harshprakash06/harshprakash06/resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
